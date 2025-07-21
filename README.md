@@ -1,0 +1,2 @@
+# EditorH-so
+Satış
